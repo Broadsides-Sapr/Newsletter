@@ -117,3 +117,6 @@ amazingly easy.
 
 -Gen Barton Milnor Mallory
 NATO Militia Warfare Command
+
+COPYRIGHT
+
