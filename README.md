@@ -114,3 +114,6 @@ when we connect the alarm systems (if, ugh...) with the vocals, locs, etc, the t
 amazingly easy. 
 
 ... more to come...
+
+-Gen Barton Milnor Mallory
+NATO Militia Warfare Command
